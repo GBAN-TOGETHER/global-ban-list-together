@@ -1,1 +1,1 @@
-# global-ban-list-together
+# wow
